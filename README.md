@@ -18,4 +18,5 @@ Chess (strategy and calculation), languages, books.
 ## Contact
 
 - GitHub: you are here
-- Add your preferred link (email, Telegram or LinkedIn) before publishing
+- Social Media Service ( Instagram: Mactawsh, TikTok: Alpers, Discord:kvertc ).
+Thank You! for visiting :)
